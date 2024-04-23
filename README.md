@@ -1,4 +1,4 @@
--yeah I´m about to do shit whith httml and maybe learn phyton idk 
+>yeah I´m about to do shit whith httml and maybe learn phyton idk 
 >I want to run a imageboard website
 >16 y/o
 
